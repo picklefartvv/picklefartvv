@@ -1,5 +1,4 @@
-       ### Hi there 👋
-# Hello im picklefart and i'm a silly gorilla tag player and modder
+### Hello im picklefart and i'm a silly gorilla tag player and modder
 
 Here are some mods i love:
 
